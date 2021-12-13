@@ -1,1 +1,1 @@
-just call me rasyad or ocad or rasyul or anything u like!!! ;)
+Rasyad, Ocad, Rasyul, or anything u like!!! :))
